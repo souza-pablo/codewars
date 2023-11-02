@@ -1,0 +1,1 @@
+The meaning of this project is to keep constantly coding and challenging me to think in diverse ways to do something
